@@ -25,7 +25,6 @@ Here are some of the languages and tools I use:
 
 ## 🔗 Connect with Me
 
-- [Youtube](https://youtube.com/@slohwnix)
 - [my discord] : *slohwnix*
 
 
